@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning more about marketing and exploring new trends in web3 and decentralization.
 - 💞️ I’m looking to collaborate on projects that involve decentralization and/or gaming. 
 - 😄 Pronouns: She/Her
-- ⚡ Fun Fact: I am half-Canadian on my mother's side but was raised in Texas. I currently live in Dallas with my partner and our two furry rugrats: Luna the dog and Traxx the cat. I am also a neurodivergent individual and proud of it!
+- ⚡ Fun Fact: I am half-Canadian on my mother's side but was raised in Texas. I currently live in Dallas with my furry rugrat: Luna the Japanese Spitz. I am also a neurodivergent individual and proud of it!
 
 <!---
 lindseymazy/lindseymazy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
